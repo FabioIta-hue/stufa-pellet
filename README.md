@@ -1,0 +1,1 @@
+# stufa-pellet
